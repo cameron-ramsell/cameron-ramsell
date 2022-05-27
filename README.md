@@ -8,5 +8,6 @@ Hey, I'm Cameron - commonly known by my handle @glitchedturtle 🐢
 
 ### Contact
 **Discord:** turtle#1989 (203910587833516033)  
-  
+**Email:** contact@glitchedturtle.com
+
 [www.glitchedturtle.com](https://www.glitchedturtle.com)
