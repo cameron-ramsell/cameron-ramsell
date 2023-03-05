@@ -1,4 +1,4 @@
-Hey, I'm Cameron - commonly known by my handle @glitchedturtle 🐢
+Hey, I'm Cameron
 * Discrete Mathematics (Math & Computer Science) @ University of Warwick
 
 ### Projects
